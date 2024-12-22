@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...555
 - 📫 How to reach me ...3686
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...цуауук
+- ⚡ Fun fact: ...цуауук465
 
 <!---
 shlarykliana/shlarykliana is a ✨ special ✨ repository because its `README.md` (this 562file) appears on your GitHub profile.
